@@ -1,0 +1,1 @@
+Gitの練習をillustratorによる木目模様の練習と共に
